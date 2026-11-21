@@ -1,1 +1,1 @@
-21 Nov 2026 | Present: All 6 | Decided: HealthDesk chosen, repo created
+21 Nov 2026 | Present: M-Nouman | Decided: HealthDesk chosen, repo created ,team invited
